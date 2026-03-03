@@ -1,1 +1,1 @@
-# inventorsolomongalaxy.github.io
+# inventorsolomongalaxy technolgies
